@@ -21,7 +21,7 @@ para que Cristo habite em seus corações mediante a fé; e oro para que vocês,
 possam, juntamente com todos os santos, compreender a largura, o comprimento, a altura e a profundidade,
 e conhecer o amor de Cristo que excede todo conhecimento, para que vocês sejam cheios de toda a plenitude de Deus." **Efésios 3:16-19**
 
-Paulo fala o mesmo: "oro pra que voces, arraigados e aliçerdos em amor." Arraigados e alicerçados é o mesmo que permanecer.
+Paulo fala o mesmo: "oro pra que voces, arraigados e alicerçados em amor." Arraigados e alicerçados é o mesmo que permanecer.
 
 Muitas vezes a gente foca em fazer, fazer, fazer. Nos preocupamos em mostrar pra Deus que a gente o ama e tals, mas a gente esquece que Ele nos amou primeiro e que é necessário que a gente cresça e permaneça nesse amor.
 
