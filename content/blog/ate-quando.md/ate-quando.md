@@ -1,6 +1,6 @@
 ---
 title: Até quando, Senhor?
-date: "2019-10-07T23:46:37.121Z"
+date: "2019-10-08T23:46:37.121Z"
 ---
 
 Até quando, Deus? Até quando? Até quando vou me rastejar, humilhar e mendigar por atenção, afeto, amor dos outros? Meu Deus. Qual o meu problema?
