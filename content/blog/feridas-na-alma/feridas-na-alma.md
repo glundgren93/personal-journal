@@ -1,3 +1,8 @@
+---
+title: Feridas na alma
+date: "2020-05-10T23:46:37.121Z"
+---
+
 Estou escura, mas sou bela, ó mulheres de Jerusalém; escura como as tendas de Quedar, bela como as cortinas de Salomão.
 Não me fiquem olhando assim porque estou escura; foi o sol que me queimou a pele. Os filhos de minha mãe zangaram-se comigo e fizeram-me tomar conta das vinhas; da minha própria vinha, porém, eu não pude cuidar. (Cânticos 1:5,6)
 
